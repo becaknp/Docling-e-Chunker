@@ -1,0 +1,64 @@
+## Partes
+
+De um lado,  Nome do Empregador, nacionalidade, profissão, estado civil, portador da Cédula de Identidade RG n°, e inscrito no CPF n°, capaz, residente e domiciliado na endereço completo, neste ato denominado EMPREGADOR .
+
+De outro lado, Nome da empregada doméstica, nacionalidade, profissão, estado civil, portadora da Cédula de Identidade RG n°, e inscrita no CPF n°, portadora da CTPS Número da Carteira de Trabalho, série Número de série da Carteira de Trabalho, capaz, residente e domiciliada na endereço completo, neste ato denominada EMPREGADA DOMÉSTICA.
+
+Têm entre os mesmos, de maneira justa e acordada, o presente CONTRATO PARTICULAR DE TRABALHO PARA EMPREGADA DOMÉSTICA , ficando desde já aceito, pelas cláusulas abaixo descritas.
+
+## Cláusula 1ª - Objeto do Contrato
+
+O presente tem como OBJETO a prestação de serviços domésticos, na residência do EMPREGADOR , por parte da EMPREGADA DOMÉSTICA , consistente em especificar atividades que deverão ser desempenhadas.
+
+Parágrafo único . Os serviços mencionados acima são inerentes à EMPREGADA DOMÉSTICA , portanto, não poderá transferir sua responsabilidade da execução para outro que não esteja previamente contratado.
+
+## Cláusula 2ª - Forma e Prazo da Contratação
+
+O presente contrato terá validade por tempo indeterminado.
+
+## Cláusula 3ª - Jornada de trabalho
+
+A EMPREGADA DOMÉSTICA deverá realizar os serviços a que foi contratada no seguinte período semanal: segunda-feira à sábado, das horas às horas (não poderá ultrapassar 8h diárias ou 44h semanais) podendo ser dispensada da realização do trabalho apenas com autorização prévia e expressa do EMPREGADOR .
+
+## Cláusula 4ª - Salário
+
+O salário acordado entre as partes é de R$ valor (valor expresso do salário a ser pago) mensais, a ser efetuado por especificar forma de pagamento, até o dia útil do mês para efetuar o pagamento dia útil subsequente ao mês trabalhado.
+
+Parágrafo primeiro . Os encargos com o pagamento das obrigações previdenciárias serão pagos pelo EMPREGADOR , bem como será fornecido especificar n° valetransporte por dia efetivamente trabalhado.
+
+Parágrafo segundo . A EMPREGADA desde já concorda que, havendo negligência, imprudência e imperícia no trato com as coisas que possui contato na residência, será desde já compelida ao pagamento das despesas que causar.
+
+Parágrafo terceiro . Para efeito de pagamento, serão descontados os adiantamentos se porventura existirem.
+
+## Cláusula 5ª - Finalização do Contrato
+
+O EMPREGADOR pode rescindir este contrato a qualquer tempo, caso haja insatisfação pela execução do serviço ou no recebimento do mesmo, devendo comunicar o fato com tempo de antecedência que se deve comunicar a rescisão dias de antecedência à outra parte.
+
+Parágrafo único . Caso a EMPREGADA se manifeste a respeito do desejo de sair, proporcionará o prazo suficiente ao EMPREGADOR até que o mesmo contrate uma empregada substituta.
+
+## Cláusula 6ª - Ausência do Empregador
+
+Facultará ao EMPREGADOR convocação da EMPREGADA para realizar o acompanhamento em viagens e outros compromissos. Caso seja convocada, a mesma irá realizar os serviços inerentes à função, nos termos do presente contrato.
+
+Parágrafo único . O EMPREGADOR , não necessitando dos trabalhos da EMPREGADA poderá liberá-la para descanso, ou combinar o efetivo trabalho nos dias a serem previamente determinados.
+
+## Cláusula 7ª - Disposições finais
+
+O presente contrato passa a vigorar entre as partes a partir da assinatura deste, as quais elegem o foro da cidade de especificar, para dirimirem quaisquer dúvidas provenientes da execução e cumprimento do mesmo.
+
+Fica acordado que quaisquer infrações do disposto neste contrato, por parte da EMPREGADA , darão ao EMPREGADOR a faculdade de apresentar advertências, suspensão e/ou demissão, ressalvando-se fatos que justifiquem demissão imediata, como porte de armas, embriaguez, furto etc.
+
+E, por estarem de pleno acordo, as partes assinam o presente CONTRATO DE TRABALHO PARA EMPREGADA DOMÉSTICA em três vias de igual teor, juntamente com 2 (duas) testemunhas.
+
+Local, dia de mês de ano.
+
+Nome completo do Empregador
+
+## Nome completo da Empregada
+
+## Testemunhas:
+
+1. Nome, nacionalidade, profissão, estado civil e endereço completo
+2. Nome, nacionalidade, profissão, estado civil e endereço completo
+
+Este contrato foi obtido através do site DireitoNet (https://www.direitonet.com.br/contratos/exibir/261/Trabalho-para-empregada-domestica) e é de uso exclusivo dos assinantes, sendo proibida sua reprodução e compartilhamento.
